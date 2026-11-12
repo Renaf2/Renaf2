@@ -11,7 +11,7 @@ But I’m Determined
 - 👯 I’m looking to collaborate on ... everything and nothing 
 - 🤔 I’m looking for help with ... everyone and no one
 - 💬 Ask me about ... everything and nothing
-- 📫 How to reach me: ... 🤔 
+- 📫 How to reach me: ... 🤔 the discussions 🤔
 - 😄 Pronouns: ... !?
 - ⚡ Fun fact: ... Ah ah ah ah ah ah 😄 
 -->
